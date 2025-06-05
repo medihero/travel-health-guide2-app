@@ -1,1 +1,0 @@
-# travel-health-guide2-app
